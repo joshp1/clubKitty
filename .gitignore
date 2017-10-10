@@ -1,0 +1,6 @@
+#trying to get it to exclude the vscode settings
+/.vscode/*
+*.log
+*.fodt
+*.opml
+*.aux
