@@ -1,4 +1,4 @@
-## Clubloli Spinoff 
+## Clubloli Spinoff
  **_needs a new name_**
 - This will be a side story to clubloli
 - It may or may not have The characters Mike and Samantha in it
@@ -31,13 +31,13 @@
 - [x] He gets a pen and paper out and says, "Ok where are you located"
 - [x] in the same bored voice she gives him the address then says, "I hope you come and have a purrrrfect day"
 - [x] She hangs up. He puts his phone down a little horny and goes and jacks off.
-- [x] When he gets there he sees what looks like a old restraunt. 
+- [x] When he gets there he sees what looks like a old restraunt.
 - [x] The building is all white with in big letters a sign that says, "The playpen" the awning that sticks out has two  furry cat ears on top of it.
 - [x] Once he's enters nervously he's ushered into a room. It's empty except for two meant that are creepily over happy.
 - [x] They talk to him making it clear they just walked in and are there just for sex with the girls
-- [x] A bolding skinny one says, "Hey I was told to sit out here a few days ago. I've been coming here everyday and no one has came out me and Jimmy have created a game want to play?" 
+- [x] A bolding skinny one says, "Hey I was told to sit out here a few days ago. I've been coming here everyday and no one has came out me and Jimmy have created a game want to play?"
 - [x] He shakes his head and he says, "Your loss it's real fun"
-- [x] After a bit more of attempting to guilt him to join. A girl walks in.Smiles cutely and motions with her index and says, "Follow meow" 
+- [x] After a bit more of attempting to guilt him to join. A girl walks in.Smiles cutely and motions with her index and says, "Follow meow"
 - [x] HE can't help but smile he gets up and the other two follow.
 - [x] A big man lets  him pass then he hears, "Back in there or I'll call the cops. A short second he hears what sounds like the bold one screaming, "No please no no no". as the sound gets faint. Till he can tell the man was taken outside.
 - [x] He says, "I hope he ain't getting beat up." The girl says, "He's being thrown" He looks down. She looks up mostly with her eyes giving him a cute look and says, "He actually throws them it looks fun"
@@ -55,13 +55,13 @@
 - [x] The man nods following him with no more questions
 - [x] Inside a small room with just a round table with two chairs across from each other. The man is told to sit on one side while the other sits on the other.
 - [x] They go threw a bunch of stuff like things they found in his past. and then he sighs a waver so they can do a background check
-- [x] After their done he says, "You can sit at the bar with whiskers if she likes. If she don't you can have a drink then leave. It takes two weeks to get the background 
+- [x] After their done he says, "You can sit at the bar with whiskers if she likes. If she don't you can have a drink then leave. It takes two weaeks to get the background
 Check back. If you don't hear from us don't come asking because we didn't like something we saw."
 - [x] The man asks what if whiskers does want to sit with me? The other man replies, "You can stay as long as she wants you to. But after you leave you can't come back till the report is done"
 - [x] The man agrees then goes back to the bar. were whiskers the girl from earlier sits beside him. to a bit of his relief.
 - [x] She's happy he came and they talk a bit. When he can tell she's wanting to do something else he says goodbye to her and she says, "Hopefully see you in a couple of weeks"
 - [x] two weeks later the man he talks to knocks on his door. When the man answers it he's handed a piece of paper then the man from before leaves
-- [x] The paper is a letter headed invitation. THe letter head has The Play pen with two cat ears on the top at the edges below in the letter is says, "We've thoroughly checked your background and it seems you are a good candidate for membership. Starting today you have a  month trial membership if we don't like you. This membership is revoked It says more stuff like if he don't like the club just leave don't make a scene. your not obligated to stay. at the bottom there is a list of three things with prices first is a yearly membership with a hundred and three hundred dollars beside it. then monthly with thirty dollars beside that.
+- [x] The paper is a letter headed invitation. The letter head has The Play pen with two cat ears on the top at the edges below in the letter is says, "We've thoroughly checked your background and it seems you are a good candidate for membership. Starting today you have a  month trial membership if we don't like you. This membership is revoked It says more stuff like if he don't like the club just leave don't make a scene. your not obligated to stay. at the bottom there is a list of three things with prices first is a yearly membership with a hundred and three hundred dollars beside it. then monthly with thirty dollars beside that.
 
 *I'm stopping here with the thorough ideas but I need to get names for the main characters and a main plot*
 
@@ -73,7 +73,7 @@ Check back. If you don't hear from us don't come asking because we didn't like s
 - [ ] Also people of his neighborhood find out that he's going to the club and begins giving him problems.
 - [ ] The problems grow when he begins taking her home. They call the cops they come pick her up and first time arrest him.
 - [ ] Her parents has to tell them there not pressing charges that he has their permission to take her home.
-- [ ] Later he has to meet her parents 
+- [ ] Later he has to meet her parents
 - [ ] They're not rich like Samantha's from Clubloli they just live in a small cottage house
 - [ ] When he comes back he sees pervert spray painted on his house
 - [ ] He also sees someone knocked out his front window with a brick with a note attached
@@ -82,7 +82,7 @@ Check back. If you don't hear from us don't come asking because we didn't like s
 - [ ] He runs to the living room to see it on fire. Then the fire alarms goes off
 - [ ] He grabs his wallet and runs outside to see someone has vandalized his car slashed his tired and broke windows
 - [ ] By the time the fire department gets there. The house is completely in flames.
-- [ ] He can't get any help to get to a hotel so he walks into town and gets one. 
+- [ ] He can't get any help to get to a hotel so he walks into town and gets one.
 - [ ] After showering the next day he goes into work. His boss walks up to him and says, "I'm sorry I didn't know you where a pedophile. We sometimes have clients that have kids. So to protect them your fired".
 - [ ] He gets mad and says, "That's discrimination" The boss shrugs and says, "Get out pervert"
 - [ ] The girl calls him and asks if he can come over before the club opens
@@ -101,10 +101,10 @@ Check back. If you don't hear from us don't come asking because we didn't like s
 - [ ] He's relieved that's all she wanted and then he tells her my house is gone. I got my insurance money but I'm thinking of moving.
 - [ ] He decides to give the girl a visit.
 - [ ] At her house the mom asks him how everything's been. He unloads and tells her I was fired from my job. So now I have to live on my savings. Thank God, I saved a bunch of money. I have to drive a rental car because they totaled my other
-- [ ] Her dad asks, "So why did you come out about it" That's when he noticed her dad is much older than his wife. 
+- [ ] Her dad asks, "So why did you come out about it" That's when he noticed her dad is much older than his wife.
 - [ ] Her mom looks maybe nineteen or twenty so she had to be very young when she had *his gf*
 - [ ] Her dad sees him looking at the two and says, "She was with Clubloli. Back when it was the only one of this clubs that's where I met her. She worked there after she turned sixteen also. Then our daughter wanted to do go to mommy's job and saw girls her about her own age. I till thought she was to young so I made her weight a year. Then this club opened up and we checked it out. THe sexual intercourse isn't allowed in the club only masturbation type stuff and it has to be covered in private with the door open so their still supervised.
-- [ ] A frustrating part for him he now sees how that would make parents happy 
+- [ ] A frustrating part for him he now sees how that would make parents happy
 - [ ] Her mom speaks up, "I was rapped by Nick on a nightly bases he seemed to love me"
 - [ ] He asks "didn't he rape all the girls a lot?"
 - [ ] They both nod
